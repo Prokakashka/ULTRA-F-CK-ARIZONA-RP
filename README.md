@@ -1,4 +1,4 @@
-🔥🔥🔥Arizona RP Utility Script 🛠 NEW 🔥🔥🔥
+🔥🔥🔥ULTRA HACK 🛠 NEW 🔥🔥🔥
 <img width="1000" height="200" alt="изображение" src="https://github.com/user-attachments/assets/fc2cb31a-bf18-4e3e-9cc9-641c2d1972b0" />
 
 Этот скрипт расширяет функционал клиента для сервера Arizona RP, делая игру удобнее — без нарушения правил! ✨
